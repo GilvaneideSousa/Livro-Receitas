@@ -1,4 +1,4 @@
-# Strogonoff de Frango![Foto](C:\Users\gilva\OneDrive\ESCOLA FAZENDA GRANDE\modelos planos de aulas\strogonoff.jpg)
+# Strogonoff de Frango<img src="C:\Users\gilva\OneDrive\Pictures\Imagem receitas\strogonoff.jpg" alt="Foto" style="zoom:45%;" />
 
 ___
 
